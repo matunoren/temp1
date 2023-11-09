@@ -11,8 +11,7 @@ Demo images* courtesy of Unsplash, a radtastic collection of CC0 (public domain)
 you can use for pretty much whatever.
 
 (* = Not included)
-
-Feedback, bug reports, and comments are not only welcome, but strongly encouraged :)
+l,sg:lmgmadmh;kdnhknfbd :kngmg]aome, but strongly encouraged :)
 
 AJ
 aj@lkn.io | @ajlkn
